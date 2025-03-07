@@ -18,6 +18,7 @@ Aqui no meu GitHub, você vai encontrar projetos completos, tanto full stack qua
 Adoro trocar ideias sobre programação, tecnologia e inovação. Se quiser bater um papo ou colaborar em algum projeto, fique à vontade para me chamar!
  
 💼 **LinkedIn: https://www.linkedin.com/in/william-amaral-franco/ 
+📧 E-mail: williamafrancoo@gmail.com
 
 ---
 
